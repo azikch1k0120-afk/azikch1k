@@ -1,1 +1,1 @@
-# azikch1k
+14-amaliy
